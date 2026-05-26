@@ -1,4 +1,4 @@
-Privacy Policy for Pantry Expiry Board
+**Privacy Policy for Pantry Expiry Board**
 Last updated: May 26, 2026
 
 This Privacy Policy explains how Pantry Expiry Board handles information when you use the app.
